@@ -1,0 +1,1 @@
+# opi-lab6-Valerii-Smazheniuk
